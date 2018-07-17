@@ -1,2 +1,2 @@
- - 刘东熠，11级信息电子；github.com/absente also @s6dyl, about.me/absente / linkedin.com/absente
+ - 刘东熠，11级信息电子；github.com/absente @s6dyl, about.me/absente, linkedin.com/absente; zhihu.com/people/101010
  - #tbd
